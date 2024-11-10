@@ -12,4 +12,5 @@
 | **Kizzy Edgell** | *Darcy Olsson* | Darcy is a confident and outgoing student who becomes Tara's girlfriend.
 | **Tobie Donovan** | *Isaac Henderson* | Isaac is a quiet and introspective member of Charlie's friend group who identifies as aromantic and asexual.
 | **Rhea Norwood** | *Imogen Heaney* | Imogen is a popular and somewhat mean girl who initially bullies Charlie. She develops feelings for Nick, but he doesn't reciprocate.
+#### *Link for more information*
 [Heartstopper] (https://en.wikipedia.org/wiki/Heartstopper_(TV_series))
